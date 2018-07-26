@@ -64,6 +64,11 @@ other
 [Wondershare AllMyTube 7.2.1.4](https://pan.baidu.com/s/1nib_9AVW1x164cNmbQXYbQ) (密码: kf9j)
 如需解压--密码 allmac.top
 
+> ###### Mac清理神器 CleanMyMac
+
+[CleanMyMac 3.9.5](https://pan.baidu.com/s/1S5R7HYR9XjdMzCvooyr0uA) 密码: s9c1
+[CleanMyMac 3.9.4](https://pan.baidu.com/s/1MPwo0fjEtFF2UC0z4llarA) 密码: 337j
+
 
 
 
